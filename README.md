@@ -1,2 +1,2 @@
-# chingy
+# Chingy
 It's whatever... ☺️☺️
